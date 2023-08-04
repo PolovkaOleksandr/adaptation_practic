@@ -1,1 +1,1 @@
-# adaptation_practic
+Секція Наша команда
